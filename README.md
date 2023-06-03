@@ -3,4 +3,4 @@
 - 🔭 I’m currently working on my blog at riotryulianto.com
 - 🌱 I’m currently learning Cybersecurity and Cloud
 - 💬 Ask me about Marvel Cinematic Universe, I'll be glad to answer it!
-- 📫 How to reach me: You can email me at riotryulianto@outlook.com.
+- 📫 How to reach me: You can email me at riotryulianto@outlook.com
